@@ -15,5 +15,4 @@ Some images of the pages are displayed below
 ![Screenshot (6)](https://github.com/user-attachments/assets/2f9f8238-6feb-46a2-a813-754d93807eef)
 ![Screenshot (7)](https://github.com/user-attachments/assets/9aa29022-52e1-460d-a079-31e19b12ca8c)
 
-
-
+![DCIT 209 PROJECT GROUP PICTURE(group 12)](https://github.com/user-attachments/assets/52e6cae9-4512-4d29-8717-31be9a4efcac)
