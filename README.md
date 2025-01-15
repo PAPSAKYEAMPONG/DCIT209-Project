@@ -10,10 +10,12 @@ Some images of the pages are displayed below
 ![Screenshot (2)](https://github.com/user-attachments/assets/4d6a8ecb-472a-4d0b-9dda-0e48a38ba3ec)
 ![Screenshot (3)](https://github.com/user-attachments/assets/e0cade87-2321-44e2-a8ad-f48e9e51fac6)
 ![Screenshot (4)](https://github.com/user-attachments/assets/d43f502b-5ea1-475e-995f-ecd0343761ac)
-![Screenshot (5)](https://github.com/user-attachments/assets/7ca1c3d8-83ce-4ae4-b669-62e5f3064766)
 ![Screenshot (8)](https://github.com/user-attachments/assets/717393cb-c987-46ed-bf61-68422e58dbf8)
 ![Screenshot (6)](https://github.com/user-attachments/assets/2f9f8238-6feb-46a2-a813-754d93807eef)
 ![Screenshot (7)](https://github.com/user-attachments/assets/9aa29022-52e1-460d-a079-31e19b12ca8c)
-![Group 12 images](https://github.com/user-attachments/assets/d1ef4916-d054-43ca-b6d1-fac2cc642c35)
+![Screenshot (9)](https://github.com/user-attachments/assets/a224ec4f-c2cc-47ef-85de-3c912e36c729)
+
+
+![Group 12 project images](https://github.com/user-attachments/assets/b08f7457-ed2e-4718-9544-5c146cc789d2)
 
 
